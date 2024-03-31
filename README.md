@@ -6,12 +6,14 @@ After the loss of her father, Shannon is determined to follow in his footsteps a
 
 
 
-## Story type: Realistic fiction story
+## Story type: 
+Realistic fiction story
 
 
 
 
-## Temporal setting: The story is set in contemporary times
+## Temporal setting: 
+The story is set in contemporary times
 
 
 
